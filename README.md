@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @rosecox
-- 🌱 I’m a UI Designer
+- 🌱 I’m a UI designer
 - 💞️ I love good designs, photography, and nature
